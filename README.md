@@ -33,8 +33,6 @@ $${\color{#CB072B} 𝚝𝚘𝚛𝚝𝚞𝚛𝚎 \color{#D30A21} ?}$$
 $${\color{#CB072B} 𝚆𝚑𝚢 \space \color{#D30A21} 𝚌𝚊𝚗'𝚝 \space \color{#DB0D16} 𝚊𝚗𝚢𝚘𝚗𝚎 \space \color{#E00F0F} 𝚏𝚎𝚎𝚕 \space \color{#F02C1F} 𝚖𝚢 }$$
 <br> $${\color{#FF462E} 𝚑𝚞𝚛𝚝 \color{#FF462E} ?}$$
 
-
- <br> 
  
  <br> $${\color{#D30A21} 𝚆𝚑𝚢'𝚍 \space \color{#DB0D16} 𝚢𝚘𝚞 \space \color{#E00F0F} 𝚌𝚛𝚘𝚠𝚗 \space \color{#F02C1F} 𝚝𝚑𝚎 \space \color{#FF462E} 𝚖𝚘𝚜𝚝 \space }$$ 
 <br> $${\color{#930537}𝚟𝚒𝚘𝚕𝚎𝚗𝚝 \space \color{#A40634} 𝚝𝚘 \space \color{#B50630} 𝚋𝚎 \space \color{#CB072B} 𝚌𝚑𝚊𝚖𝚙𝚒𝚘𝚗𝚜 \color{#D30A21} ?}$$ 
