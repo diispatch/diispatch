@@ -14,7 +14,7 @@
 # <div align="center"> $${\color{#ad0909}𝘓𝘢𝘮𝘦𝘯𝘵!}$$ </div>
 
 
-<img align="left" src="https://file.garden/ZfRta4uUh3asFRHD/tumblr_sou6k9bJNK1v19e2i_720-ezgif.com-effects.gif" width="500" />   𝚆𝚑𝚢 𝚍𝚘 𝚍𝚎𝚊𝚝𝚑𝚜 𝚎𝚗𝚍 𝚖𝚢 𝚝𝚘𝚛𝚝𝚞𝚛𝚎? <br>
+<img align="left" src="https://file.garden/ZfRta4uUh3asFRHD/ezgif.com-optimize.gif" width="500" />   𝚆𝚑𝚢 𝚍𝚘 𝚍𝚎𝚊𝚝𝚑𝚜 𝚎𝚗𝚍 𝚖𝚢 𝚝𝚘𝚛𝚝𝚞𝚛𝚎? <br>
 
  <div dir="rtl"> ?𝚆𝚑𝚢 𝚌𝚊𝚗'𝚝 𝚊𝚗𝚢𝚘𝚗𝚎 𝚏𝚎𝚎𝚕 𝚖𝚢 𝚑𝚞𝚛𝚝 </div> <br>
  
