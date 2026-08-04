@@ -16,7 +16,7 @@
 
 <img align="left" src="https://file.garden/ZfRta4uUh3asFRHD/ezgif.com-optimize.gif" width="500" />   𝚆𝚑𝚢 𝚍𝚘 𝚍𝚎𝚊𝚝𝚑𝚜 𝚎𝚗𝚍 𝚖𝚢 𝚝𝚘𝚛𝚝𝚞𝚛𝚎? <br>
 
- <div dir="rtl"> ?𝚆𝚑𝚢 𝚌𝚊𝚗'𝚝 𝚊𝚗𝚢𝚘𝚗𝚎 𝚏𝚎𝚎𝚕 𝚖𝚢 𝚑𝚞𝚛𝚝 </div> <br>
+ <div dir="rtl"> 𝚆𝚑𝚢 𝚌𝚊𝚗'𝚝 𝚊𝚗𝚢𝚘𝚗𝚎 𝚏𝚎𝚎𝚕 𝚖𝚢 ?𝚑𝚞𝚛𝚝 </div> <br>
  
 <br> 𝚆𝚑𝚢'𝚍 𝚢𝚘𝚞 𝚌𝚛𝚘𝚠𝚗 𝚝𝚑𝚎 𝚖𝚘𝚜𝚝 𝚟𝚒𝚘𝚕𝚎𝚗𝚝 𝚝𝚘 𝚋𝚎 𝚌𝚑𝚊𝚖𝚙𝚒𝚘𝚗𝚜? <br> 
 
