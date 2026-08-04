@@ -25,4 +25,4 @@ Art cred = sleepyeule & nethersonq
 <img src="https://file.garden/ZfRta4uUh3asFRHD/ezgif-4bc3560bfba21302.gif" width="500" />  
 <br> <div dir="rtl">  𝙸𝚗 𝚝𝚑𝚒𝚜 𝚒𝚗𝚏𝚎𝚛𝚗𝚘 𝚠𝚎 𝚋𝚞𝚒𝚕𝚝 𝚏𝚘𝚛 𝚘𝚞𝚛𝚜𝚎𝚕𝚟𝚎𝚜 </div> <br> 
 <br> 𝚁𝚎𝚟𝚒𝚟𝚒𝚗𝚐 <br> 
-<br> <div dir="rtl"> 𝚎𝚊𝚌𝚑𝚘𝚝𝚑𝚎𝚛 𝚒𝚗 𝚝𝚑𝚒𝚜 𝚑𝚎𝚕𝚕. </div> <br> 
+<br> <div dir="rtl"> .𝚎𝚊𝚌𝚑𝚘𝚝𝚑𝚎𝚛 𝚒𝚗 𝚝𝚑𝚒𝚜 𝚑𝚎𝚕𝚕 </div> <br> 
