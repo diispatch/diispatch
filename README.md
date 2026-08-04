@@ -26,8 +26,8 @@
 <img src="https://file.garden/ZfRta4uUh3asFRHD/%E2%9C%BE%20Signalis(1).jpg" width="500" />
 </p>
 
- <img src="https://file.garden/ZfRta4uUh3asFRHD/tumblr_sou6k9bJNK1v19e2i_720-ezgif.com-crop(1).gif" width="500" /> 
-<div dir="rtl"> <img src="https://file.garden/ZfRta4uUh3asFRHD/ezgif-4bc3560bfba21302.gif" width="500" />  </div>
+ <img src="https://file.garden/ZfRta4uUh3asFRHD/tumblr_sou6k9bJNK1v19e2i_720-ezgif.com-effects.gif" width="500" /> 
+<div dir="rtl"> <img src="https://file.garden/ZfRta4uUh3asFRHD/ezgif-4bc3560bfba21302-ezgif.com-effects.gif" width="500" />  </div>
 
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317lxehdlgh3atg5nfvxm6gchjp4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=ae023a&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile) <br>
