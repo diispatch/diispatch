@@ -26,7 +26,7 @@ $${\color{#CB072B} 𝚝𝚘𝚛𝚝𝚞𝚛𝚎 \color{#D30A21} ?}$$
 <br>$${\color{#FF462E} ✦ · \color{#e82744}───\color{#ba0b0b}─────\color{#e82744}──── \color{#FF462E}· ✦ }$$ 
 
 <br> $${\color{#FF462E}   𓏼 ׅ    \color{#FF462E}hq   \color{#ba0b0b}or   \color{#e82744}dispatch  }$$ 
-<br> $${\color{#ba0b0b}it   \color{#FF462E}╱   \color{#e82744}he   \color{#FF462E}⠀𓏼꒱    }$$
+<br> $${\color{#ba0b0b}he   \color{#FF462E}╱   \color{#e82744}any   \color{#FF462E}⠀𓏼꒱    }$$
  <br> $${\color{#572294}blue \space \color{#e82744}system \space \color{#ba0b0b}of \space \color{#e82744}death   }$$
  
 <br>$${\color{#FF462E} ✦ · \color{#e82744}───\color{#ba0b0b}─────\color{#e82744}──── \color{#FF462E}· ✦ }$$ 
