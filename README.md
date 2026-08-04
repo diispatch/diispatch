@@ -2,9 +2,9 @@
 > [!CAUTION]
 >  Zeal/Pressure Supporters DNI. I will block you.
 
----
-
 ![](https://komarev.com/ghpvc/?username=diispatch&style=flat-square&color=dc143c)
+
+---
 
 <p align="center">
 <img src="https://file.garden/ZfRta4uUh3asFRHD/ACCESS%20DENIED.jpg" width="500" />
