@@ -21,15 +21,17 @@
 
 
 
-$${\color{#74033B} 𝚆𝚑𝚢 \space \color{#840439} 𝚍𝚘 \space \color{#930537} 𝚍𝚎𝚊𝚝𝚑𝚜 \space \color{#A40634} 𝚎𝚗𝚍 \space \color{#B50630} 𝚖𝚢 \space \color{#CB072B} 𝚝𝚘𝚛𝚝𝚞𝚛𝚎 \color{#D30A21} ?}$$
+$${\color{#74033B} 𝚆𝚑𝚢 \space \color{#840439} 𝚍𝚘 \space \color{#930537} 𝚍𝚎𝚊𝚝𝚑𝚜 \space \color{#A40634} 𝚎𝚗𝚍 \space \color{#B50630} 𝚖𝚢 \space}$$ <br>
+$${\color{#CB072B} 𝚝𝚘𝚛𝚝𝚞𝚛𝚎 \color{#D30A21} ?}$$
 
-<br>$${\color{#FF462E} ✦ · \color{#e82744}───────\color{#ba0b0b}───────\color{#e82744}──────── \color{#FF462E}· ✦ }$$ 
+<br>$${\color{#FF462E} ✦ · \color{#e82744}───\color{#ba0b0b}─────\color{#e82744}──── \color{#FF462E}· ✦ }$$ 
 
 <br> $${\color{#FF462E}   𓏼 ׅ    \color{#FF462E}hq   \color{#ba0b0b}or   \color{#e82744}dispatch  }$$ 
 <br> $${\color{#ba0b0b}it   \color{#FF462E}╱   \color{#e82744}he   \color{#FF462E}⠀𓏼꒱    }$$
- <br> $${\color{#FF462E}  ⠀⠀⠀𓈈 ﹒ \color{#ba0b0b}the \space \color{#572294}blue \space \color{#e82744}system \space \color{#ba0b0b}of \space \color{#e82744}death   }$$
+ <br> $${\color{#572294}blue \space \color{#e82744}system \space \color{#ba0b0b}of \space \color{#e82744}death   }$$
  
-<br>$${\color{#FF462E} ✦ · \color{#e82744}───────\color{#ba0b0b}───────\color{#e82744}──────── \color{#FF462E}· ✦ }$$ <br>
+<br>$${\color{#FF462E} ✦ · \color{#e82744}───\color{#ba0b0b}─────\color{#e82744}──── \color{#FF462E}· ✦ }$$ 
+
 $${\color{#CB072B} 𝚆𝚑𝚢 \space \color{#D30A21} 𝚌𝚊𝚗'𝚝 \space \color{#DB0D16} 𝚊𝚗𝚢𝚘𝚗𝚎 \space \color{#E00F0F} 𝚏𝚎𝚎𝚕 \space \color{#F02C1F} 𝚖𝚢 \space \color{#FF462E} 𝚑𝚞𝚛𝚝 \color{#FF462E} ?}$$
 
  <br> 
@@ -46,7 +48,7 @@ $${\color{#CB072B} 𝚆𝚑𝚢 \space \color{#D30A21} 𝚌𝚊𝚗'𝚝 \space 
 
  <br>  <br> $${\color{#FF462E}𝙸𝚗 \space \color{#F02C1F}𝚝𝚑𝚒𝚜 \space \color{#E00F0F}𝚒𝚗𝚏𝚎𝚛𝚗𝚘 \space \color{#DB0D16}𝚠𝚎 \space \color{#D30A21}𝚋𝚞𝚒𝚕𝚝 \space \color{#CB072B}𝚏𝚘𝚛 \space \color{#B50630}𝚘𝚞𝚛𝚜𝚎𝚕𝚟𝚎𝚜}$$ <br> <br> <br> 
 
-<img align="right" src="https://file.garden/ZfRta4uUh3asFRHD/ezgif.com-gif-maker.gif" width="500" /> 
+<img align="right" src="https://file.garden/ZfRta4uUh3asFRHD/ezgif.com-gif-maker.gif" width="400" /> 
 
 <br>  <br> 
 <br> <br> $${\color{#74033B}𝚁\color{#840439}𝚎\color{#930537}𝚟\color{#A40634}𝚒\color{#B50630}𝚟\color{#CB072B}𝚒\color{#D30A21}𝚗\color{#DB0D16}𝚐 }$$
@@ -63,7 +65,7 @@ $${\color{#D30A21}𝚎𝚊𝚌𝚑𝚘𝚝𝚑𝚎𝚛 \space \color{#DB0D16}�
 
 <br> <br>
 <p align="center">
-<img src="https://file.garden/ZfRta4uUh3asFRHD/%E2%9C%BE%20Signalis(1).jpg" width="500" />
+<img src="https://file.garden/ZfRta4uUh3asFRHD/%E2%9C%BE%20Signalis(1).jpg" width="400" />
  <br>
   <br>
   <br>
