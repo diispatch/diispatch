@@ -2,6 +2,8 @@
 > [!CAUTION]
 >  Zeal/Pressure Supporters DNI. I will block you.
 
+---
+
 ![](https://komarev.com/ghpvc/?username=diispatch&style=flat-square&color=dc143c)
 
 <p align="center">
@@ -68,6 +70,9 @@ $${\color{#D30A21}𝚎𝚊𝚌𝚑𝚘𝚝𝚑𝚎𝚛 \space \color{#DB0D16}�
   <img src="https://64.media.tumblr.com/506d3f3df7ba9f7cb2a0298fabac23e3/50dbe933c2fa6369-de/s640x960/724bcff5f917b5da62bc445be49cb88308261583.gifv" width="1000" /> 
  <img src="https://64.media.tumblr.com/506d3f3df7ba9f7cb2a0298fabac23e3/50dbe933c2fa6369-de/s640x960/724bcff5f917b5da62bc445be49cb88308261583.gifv" width="1000"  />
 </p>
+
+---
+
 
 
  
