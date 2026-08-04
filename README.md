@@ -3,12 +3,13 @@
 > This github is a big wip lol. Zeal/Pressure Supporters DNI.
 
 
+<p align="center">
+ <img src="https://file.garden/ZfRta4uUh3asFRHD/tumblr_1bb5543410fd489923d952d9fdd0c2b7_313cdc34_1280.jpg" width="500" /> 
+</p>
 
+ 
+# <div align="center"> $${\color{#ad0909}𝘓𝘢𝘮𝘦𝘯𝘵!}$$ </div>
 
-
-
-
-# **$${\color{#ad0909}𝘓𝘢𝘮𝘦𝘯𝘵!}$$** 
 
 <br> 𝚆𝚑𝚢 𝚍𝚘 𝚍𝚎𝚊𝚝𝚑𝚜 𝚎𝚗𝚍 𝚖𝚢 𝚝𝚘𝚛𝚝𝚞𝚛𝚎? <br>
 <br> <div dir="rtl"> ?𝚆𝚑𝚢 𝚌𝚊𝚗'𝚝 𝚊𝚗𝚢𝚘𝚗𝚎 𝚏𝚎𝚎𝚕 𝚖𝚢 𝚑𝚞𝚛𝚝 </div> <br>
