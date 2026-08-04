@@ -24,7 +24,7 @@
 <img src="https://file.garden/ZfRta4uUh3asFRHD/SIGNALIS%20banner.jpg"  width="500" />
 </p>
 
-<img align="right" src="https://file.garden/ZfRta4uUh3asFRHD/ezgif.com-gif-maker(1).gif" width="500" /> 
+<img align="right" src="https://file.garden/ZfRta4uUh3asFRHD/ezgif.com-gif-maker.gif" width="500" /> 
 
 <br> <div dir="rtl">  𝙸𝚗 𝚝𝚑𝚒𝚜 𝚒𝚗𝚏𝚎𝚛𝚗𝚘 𝚠𝚎 𝚋𝚞𝚒𝚕𝚝 𝚏𝚘𝚛 𝚘𝚞𝚛𝚜𝚎𝚕𝚟𝚎𝚜 </div> <br> 
 
