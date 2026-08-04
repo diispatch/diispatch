@@ -4,7 +4,7 @@
 
 
 <p align="center">
- <img src="https://file.garden/ZfRta4uUh3asFRHD/tumblr_1bb5543410fd489923d952d9fdd0c2b7_313cdc34_1280.jpg" width="500" /> 
+ <img src="https://file.garden/ZfRta4uUh3asFRHD/tumblr_1bb5543410fd489923d952d9fdd0c2b7_313cdc34_1280.jpg" width="400" /> 
 </p>
 
  
