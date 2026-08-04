@@ -32,7 +32,8 @@ $${\color{#CB072B} 𝚝𝚘𝚛𝚝𝚞𝚛𝚎 \color{#D30A21} ?}$$
  
 <br>$${\color{#FF462E} ✦ · \color{#e82744}───\color{#ba0b0b}─────\color{#e82744}──── \color{#FF462E}· ✦ }$$ 
 
-$${\color{#CB072B} 𝚆𝚑𝚢 \space \color{#D30A21} 𝚌𝚊𝚗'𝚝 \space \color{#DB0D16} 𝚊𝚗𝚢𝚘𝚗𝚎 \space \color{#E00F0F} 𝚏𝚎𝚎𝚕 \space \color{#F02C1F} 𝚖𝚢 \space \color{#FF462E} 𝚑𝚞𝚛𝚝 \color{#FF462E} ?}$$
+$${\color{#CB072B} 𝚆𝚑𝚢 \space \color{#D30A21} 𝚌𝚊𝚗'𝚝 \space \color{#DB0D16} 𝚊𝚗𝚢𝚘𝚗𝚎 \space \color{#E00F0F} 𝚏𝚎𝚎𝚕 \space \color{#F02C1F} 𝚖𝚢 }$$
+<br> $${\color{#FF462E} 𝚑𝚞𝚛𝚝 \color{#FF462E} ?}$$
 
  <br> 
  
