@@ -1,7 +1,7 @@
 
 > [!CAUTION]
 >  Zeal/Pressure Supporters DNI. I will block you. 
-> im a #system but i will not disclose specifics and do not wish to be included in syscourse or whatever
+> <br> im a #system but i will not disclose specifics and do not wish to be included in syscourse or whatever
 
 ![](https://komarev.com/ghpvc/?username=diispatch&style=flat-square&color=dc143c)
 
