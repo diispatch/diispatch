@@ -1,6 +1,6 @@
 
 > [!CAUTION]
->  Zeal/Pressure Supporters DNI. I will block you. 
+>  Zeal/Pressure Supporters or anyone who still plays the game DNI. I will block you.
 > <br> im a #system but i will not disclose specifics and do not wish to be included in syscourse or whatever
 > <br> we use it/he and blu/bloo or carni as catchall prns/names 
 
