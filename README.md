@@ -1,6 +1,6 @@
 
 > [!CAUTION]
->  Zeal/Pressure Supporters or anyone who still plays the game DNI. I will block you.
+>  Zeal/Pressure Supporters or anyone who still plays the game DNI. I will block you. I still support Ren overall and have very strong opinions about this. If you support Zeal or continue to play pressure despite everything, i will make assumptions about you and act accordingly.
 > <br> we use it/he and blu/bloo as catchall prns/names 
 > <br> main is [@lvnlmnt](https://github.com/lvnlmnt), it has more info over there
 
